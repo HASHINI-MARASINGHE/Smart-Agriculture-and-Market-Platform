@@ -1,1 +1,0 @@
-# Smart-Agriculture-and-Market-Platform
